@@ -14,8 +14,17 @@
 
 ![Anime Pc GIFs | Tenor](https://media.tenor.com/2c7diqh1oVIAAAAM/anime-computer.gif)
 
-<h3 align="center">
   
 <p>&nbsp;<img align="center" src="https://github-readme-stats.vercel.app/api?username=alefcarmo&show_icons=true&theme=highcontrast&locale=en" alt="alefcarmo" /></p>
 
+<p align="left"> <img src="https://komarev.com/ghpvc/?username=alefcarmo&label=Profile%20views&color=0e75b6&style=flat" alt="alefcarmo" /> </p>
+
+
+<h3 align="left">Connect with me:</h3>
+<p align="left">
+<a href="https://instagram.com/alef_carmo" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/instagram.svg" alt="alef_carmo" height="30" width="40" /></a>
+
+
+<h3 align="center">
+  
 ![Aggregate 53+ anime ocean gif super hot - in.cdgdbentre](https://gifdb.com/images/thumbnail/flying-birds-above-the-sea-anime-aesthetic-57jj9md4i2o4d3ey.gif)
